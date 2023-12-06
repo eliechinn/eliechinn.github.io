@@ -11,11 +11,14 @@ Crochet is a type of needlecraft in which you use a hook to create fabric from l
 
 **BASIC CROCHET!** [BASIC CROCHET](https://sarahmaker.com/basic-crochet-stitches/) 
 One of basic crochet is "single crochet" What is the Single Crochet Stitch?
+![single](https://i.pinimg.com/564x/b9/52/94/b95294ab332a4daa0b49cfae0b32294d.jpg)
 
 The single crochet stitch is a simple stitch that’s well suited to a wide variety of crochet projects, like pillows, top-down beanies, and warm sweaters. It’s often used in doll and amigurumi patterns, too. Tutorial:
 [SINGLE CROCHET](https://www.youtube.com/watch?v=cHe9_rnZr9Y)
 
-The "Double Crochet Stitch"Double crochet is one most popular and versatile of all crochet stitches. It’s a simple stitch that’s easy to learn and fun to do.The double crochet stitch, abbreviated DC, is one of the six most common crochet stitches. You can work double crochet in rows, joined rounds, or continuous spiral rounds.Tutorial:
+The "Double Crochet Stitch"Double crochet is one most popular and versatile of all crochet stitches.
+
+It’s a simple stitch that’s easy to learn and fun to do.The double crochet stitch, abbreviated DC, is one of the six most common crochet stitches. You can work double crochet in rows, joined rounds, or continuous spiral rounds.Tutorial:
 [DOUBLE CROCHET](https://www.youtube.com/watch?v=dczIHj7fg8Q)
 
 The "half double crochet stitch"The half double crochet stitch is taller than a single crochet stitch, yet shorter than double crochet stitch. The process of making a half double crochet stitch is very similar to single crochet, with one extra yarn-over at the beginning.Half double crochet makes a solid crocheted fabric without holes. It’s a simple stitch that’s well suited to a wide variety of crochet projects, like baby blankets, pillows, scarves, and warm sweaters. Tutorial:
